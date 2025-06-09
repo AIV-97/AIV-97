@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Agreiza Fraschze (AIV‑97 / @noob_permanently)
+# 👋 Hi, I'm Fraschze97 (@noob_permanently)
 
 📍 Based in Bogor, Indonesia  
 🔧 Android Custom ROM & Kernel Developer | Focused on Snapdragon 662 / Bengal devices
